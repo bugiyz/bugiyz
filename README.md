@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on this jetson orin nano i got recently
 - 📫 How to reach me: email is mostly effective
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I got hit in the face by kid's jumprope
+- ⚡ Fun fact: I got hit in the face by kid's jump rope from work and interned at JPL as their comp and instrument engineer
 
